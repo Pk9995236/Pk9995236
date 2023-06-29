@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Pk9995236
+- 👋 Hi, I’am  PRINCE kumar
 - 👀 I’m interested in web development...
 - 🌱 I’m currently learning engineering.
 - 💞️ I’m looking to collaborate on ..startup comapny.
